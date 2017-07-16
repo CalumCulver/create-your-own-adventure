@@ -1,0 +1,1 @@
+After all the clapping you notice a Koala rises from his chair, and starts to stroll over to you looking somewhat sedate.
